@@ -28,7 +28,7 @@ Atualmente com foco em qualidade de software.
 </div><br>
 
 
-"Nenhum obstáculo será tão grande se sua vontade de vencer for maior!!!"
+"Nenhum obstáculo será tão grande se sua vontade de vencer for maior!!!"😉
 
 
 
